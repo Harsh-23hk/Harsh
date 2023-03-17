@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **harshhk608@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/harsh-40b432228/](https://www.linkedin.com/in/harsh-40b432228/)
+- 📄 Know about my experiences [https://www.linkedin.com/in/harsh-koli/](https://www.linkedin.com/in/harsh-koli/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
